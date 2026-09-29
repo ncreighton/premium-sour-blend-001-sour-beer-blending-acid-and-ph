@@ -1,0 +1,2 @@
+# premium-sour-blend-001-sour-beer-blending-acid-and-ph
+Tired of inconsistent sour blends where one batch is perfectly tart and the next falls flat because you can't remember your exact acid additions? The Sour Beer Blending Acid and pH Record is your digital lab notebook designed to capture every pH reading, acid addition, and blend ratio so you can replicate your best sours with scientific precision.
